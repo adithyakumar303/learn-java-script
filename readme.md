@@ -3,9 +3,9 @@ if i were an astronaut
 it would be difficult
 but also, fun
 
-if i walked on the moon 
-i would fall 
-and rroll around
+if I walked on the moon 
+I would fall 
+and roll around
 
 if i were on the ISS
-iwold fly as if i had a jetpack
+i would fly as if i had a jetpack
